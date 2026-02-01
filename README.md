@@ -25,6 +25,6 @@ obligatory stamp collection ,,, if the stamp is here it's an interest of mine or
 
 **blinkies**
 
-![b1](https://adriansblinkiecollection.neocities.org/y39.gif) ![b2](https://adriansblinkiecollection.neocities.org/y60.gif) ![b3](https://adriansblinkiecollection.neocities.org/z4.gif) ![b4](https://adriansblinkiecollection.neocities.org/d86.gif) ![b5](https://adriansblinkiecollection.neocities.org/b7.gif) ![b6](https://adriansblinkiecollection.neocities.org/a12.gif) ![b7](https://files.catbox.moe/8m5wdd.gif) ![b8](https://files.catbox.moe/5cqgvb.gif) 
+![b1](https://adriansblinkiecollection.neocities.org/y39.gif) ![b2](https://adriansblinkiecollection.neocities.org/y60.gif) ![b3](https://adriansblinkiecollection.neocities.org/z4.gif) ![b4](https://adriansblinkiecollection.neocities.org/d86.gif) ![b5](https://adriansblinkiecollection.neocities.org/b7.gif) ![b6](https://adriansblinkiecollection.neocities.org/a12.gif) ![b7](https://files.catbox.moe/8m5wdd.gif) ![b8](https://files.catbox.moe/5cqgvb.gif) ![b9](https://files.catbox.moe/q5c8en.gif)
 
 all oshi stamps come from idolyuri on tumblr :)
